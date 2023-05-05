@@ -1,1 +1,1 @@
-# Preprocessing-Data
+Nama : Ayub Michaelangelo Manurung
